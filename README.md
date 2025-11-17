@@ -1,2 +1,0 @@
-\# CURSO GIT E GITHUB 2025
-
