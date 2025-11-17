@@ -12,3 +12,7 @@ Além disso, vamos trabalhar com GitFlow ao final do curso e Visual Code Studio
 
 Confira tudo o que temos no nosso Youtube. É Grátis!
 
+
+
+É bem difícil, mas estou tentando fortemente kkkkkkkkkkk
+
